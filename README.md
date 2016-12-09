@@ -3,8 +3,8 @@ Olga e Isabel en el supermercado
 
 ## Conversación con Dante
 
---¡Dante! 
---Hola, qué tal ¿te conozco?
+—¡Dante! 
+—Hola, qué tal ¿te conozco?
 ---¡Claro! ¿no te acordás?
 ---¡Ah, sí! En la fiesta en el campo de Coty.
 ---No... en la playa.
