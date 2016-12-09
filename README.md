@@ -14,8 +14,8 @@ Olga e Isabel en el supermercado
 —No  
 —Ah, vos sos Carla, sí. Carla.  
 —¡Soy Isabel!  
-—Ah, sí. ¿Cómo estás, tanto tiempo? Qué buena estuvo esa fiesta. Vos estabas morocha.  
-—No. Yo siempre fui rubia. Esperé tu llamada.  
+—Qué buena estuvo esa fiesta. Estaba llena de gente VIP. A vos no te recuerdo. ¿Eras promotora?  
+—No, no. Estaba invitada. Esperé tu llamada.  
 —...  
 —Seguro se te rompió el celular y perdiste mi número.  
 —¡Sí, sí! Eso, eso.  
